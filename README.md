@@ -1,8 +1,8 @@
 # GRASS
 
-BOT LINK: [Link Bot](https://app.getgrass.io/register/?referralCode=p60dN4QjP7-JvuT)
+BOT LINK: [Link Bot](https://app.getgrass.io/register/?referralCode=HjzcNZ3A-X4w4Pm)
 
-TELEGRAM GROUP LINK: [Link Channel Telegram](https://t.me/UxScript)
+TELEGRAM GROUP LINK: [https://t.me/Airdrophack1239] 
 
 ## Features:
 | Feature                        | Supported |
